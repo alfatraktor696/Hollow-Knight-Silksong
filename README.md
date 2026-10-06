@@ -234,4 +234,4 @@ Hollow Knight: Silksong is available as a full free version with all features an
 Ready to embark on your adventure? Download Hollow Knight: Silksong today and dive into an unforgettable gaming experience!
 
 ---
-**Last updated:** 2026-10-05 23:46:44 UTC
+**Last updated:** 2026-10-06 05:00:45 UTC
